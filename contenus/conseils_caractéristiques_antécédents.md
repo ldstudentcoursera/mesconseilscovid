@@ -6,7 +6,7 @@ d’appliquer les mesures de **distanciation physique renforcée :**
 * Application stricte des gestes barrières
 * Masque en permanence à l’extérieur de mon foyer
 * Distance de sécurité > 1m soit 4m<sup>2</sup>
-* Réduire les sorties au strict minimum possible
+* Réduire les sorties autant que possible
 * Au moindre symptôme, contactez votre médecin généraliste ou le 15 en cas d’urgence
 
 Pour plus d’informations officielles, rendez-vous sur :
