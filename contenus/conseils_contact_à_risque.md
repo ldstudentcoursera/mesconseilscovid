@@ -1,6 +1,8 @@
-Nous vous conseillons de vous **signaler auprès de votre
+**Vous avez eu un contact à risque avec une personne atteinte par le COVID-19 : Vous pouvez être porteur du COVID-19 et possiblement contaminer vos proches.**
+
+Nous vous conseillons de vous **contacter votre
 médecin** généraliste.
-Par la suite, un médecin ou un professionnel va vous
+Par la suite, un médecin ou un professionnel pourra vous
 contacter si cela n’est pas déjà fait.
 
 Gardez votre foyer en **isolement** en attendant plus d’informations
